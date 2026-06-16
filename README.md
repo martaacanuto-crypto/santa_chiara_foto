@@ -1,1 +1,1 @@
-Lavoro in corso su raccolta foto del Santa Chiara a San Miniato
+deposito di foto provvisorio e informale ai fini della ricerca
